@@ -1,2 +1,2 @@
 # Ufoporno
-Shared repository with friend
+Shared repository with friends
